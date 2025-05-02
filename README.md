@@ -1,0 +1,1 @@
+# mindrip-app-ads
